@@ -1,5 +1,5 @@
 # Hi am Joseph Nkwantabisa 
-a youg and slow thinker getting my way  in computing and  
+A youg and slow thinker getting my way  in computing and  
 programming , in case im not doing fine , take a break 
 im not a chikd prodigy that started coding at 8 like sir linus Torvalds
 Sir Gates at thirtheen and all the other guys 
